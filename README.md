@@ -7,7 +7,6 @@ Developer
 Shop 2nd Anniversary
 
 * 🌍  I'm based in Thailand
-* 🖥️  See my portfolio at [MyShop](http://https://discord.gg/P3zSy7RcUG)
 
 ### Skills
 
